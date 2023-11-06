@@ -30,7 +30,7 @@ https://www.tracelabs.org/get-involved - (World)
 
 -----------------------------------------------------------------------------------------
 
-# InfoSec Black Friday Deals 2022
+# InfoSec Black Friday Deals 2023
 
 ## Newsletters
 
